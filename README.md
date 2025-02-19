@@ -1,0 +1,1 @@
+# Pola-pikir-yang-sempurna
